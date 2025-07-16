@@ -1,7 +1,6 @@
 <h2>24h搜书官网，免费电子书下载平台|网页版入口</h2>
 <p>24h搜书（24h Book Search）是一个专注于提供免费电子书下载的综合性平台，致力于为用户提供便捷、高效的电子书搜索和阅读体验。该平台基于IPFS技术构建，收录了超过12.7万本图书资源，涵盖文学、艺术、科技、历史、哲学、小说等多个领域，满足不同用户的需求。其界面简洁清爽，操作简单直观，适合新手和老用户。无论是学生、教师、研究人员，还是普通读者，都可以通过关键词快速找到所需的书籍资源，支持多种格式下载，如EPUB、PDF、MOBI等，同时支持在线阅读和离线下载功能。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/684.html
-" target="_blank" ><strong>24h搜书官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://24hsoushu.ggonav.com/" target="_blank" ><strong>24h搜书官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
